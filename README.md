@@ -1,4 +1,4 @@
-# Hi, I'm Layan👋
+# Hi, I'm Layan
 
 🎓 Computer Science Student at Taif University
 
